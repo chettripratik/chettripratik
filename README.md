@@ -1,1 +1,1 @@
-hi my name is pratiikkks,....now doing my btech ----lifes good
+Hello, my name is Pratik. As an engineering student, I strive to create thoughtful, intentional software and engage in learning by doing. Outside of my studies, I train in mixed martial arts a practice that keeps me disciplined, grounded and mentally tough. I value those quiet moments of growth, respect for my craft and continual self-improvement.
